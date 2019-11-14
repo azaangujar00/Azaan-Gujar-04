@@ -1,2 +1,2 @@
-# Azaan-Gujar-04
+# azaangujar
 Assalam o alaikum
